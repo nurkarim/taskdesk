@@ -66,12 +66,12 @@ Use TaskDesk to **boost productivity, improve workflow, and manage tasks online*
 ---
 
 ## 📞 Contact
-
+https://www.facebook.com/nurkarim72/
 **Nur Karim**  
-- 📧 Email: [your-email@example.com](mailto:your-email@example.com)  
-- 💬 Messenger: [m.me/your-facebook-username](https://m.me/your-facebook-username)  
-- 🌐 Facebook: [facebook.com/your-facebook](https://facebook.com/your-facebook)  
-- 🔗 LinkedIn: [linkedin.com/in/your-linkedin](https://linkedin.com/in/your-linkedin)  
+- 📧 Email: [nurkarim.ajra@gmail.com](mailto:nurkarim.ajra@gmail.com)  
+- 💬 Messenger: [m.me/nurkarim72](https://m.me/nurkarim72)  
+- 🌐 Facebook: [facebook.com/nurkarim72](https://facebook.com/nurkarim72)  
+- 🔗 LinkedIn: [linkedin.com/in/nurkarim](https://linkedin.com/in/nurkarim)  
 
 ---
 
